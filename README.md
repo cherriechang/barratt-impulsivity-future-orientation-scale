@@ -1,0 +1,1 @@
+# barratt-impulsivity-future-orientation-scale
